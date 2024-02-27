@@ -1,0 +1,3 @@
+For grading of the class, my professor Patrick Callahan is having me create a commonplace book for all the texts we are reading. This will both give him a way to grade me, and give me an opportunity to gather my thoughts on the novels into one place.  
+
+For the class, I will be reading [[Virgil's Aeneid]], [[The Confessions]], and Evelyn Waugh's [[Brideshead Revisited]], along with several selected readings from other novels, notably sections of Dante's Divine Comedy.
